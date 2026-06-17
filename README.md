@@ -1,1 +1,1 @@
-# Website-Pariwisata-Sumba-Tiomur
+# Website-Pariwisata-Sumba-Timur
